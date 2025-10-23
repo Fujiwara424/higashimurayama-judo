@@ -1,1 +1,0 @@
-# higashimurayama-judo
